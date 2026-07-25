@@ -1,1 +1,197 @@
-ΩέΩέιξµιήΉέ­΄ο~τλή›λλΉο~·οn½οNψλήινΪΫM¶ηΌοnοΎµοΎµοέ΄λόοNΉοn½ιήΉιξψο}΄οΫNϊλ^λήΈλ^ψλ΄λ^ΫN½λΉλ]΄λnΉλ®οnΉΫN¶ο½ιΞΈΩν¶Ρ®ϊλφο~½ιώέ­΄ί]ίMίMλ^ωοΌιώφέ­΄γ~ιήολήψοέιΞ½λ~ΉιξχλΪΫNγήxΡ®τιΞµοΊιώφιήχέ­΄εΎλήοόΩΝ΄ιήµλ~ο}ΫNϋλήλοΎχεέιήΉοµλµοµέ­ΫM΄λΞΉοnλχέ­ΫM΄ΫM΄οµλΎχέ­΄εΎχοN½ιΎΉΩΝ΄οNφιώψιώψοήτλΫNΉοΞτλφλήλοΫNΊλµο~½λn½ιΞ½ούΩΝ΄οΌοnοΎµοΎµοέΫNΉοΞτιΞοnµο½ιώΩΝ΄οnΉο~Ήλ^φλ~ΌΩΝ΄οNλ^ιξ½ιξ»ΩΝ΄ιήϊοMΫNτοnιώΊΩήλ­λ~ιξ·λτο]Ρ­΄ΫM΄ΫNφλλ^ψλΈεώχιΎ½ιΞο}ΪΫN[ο~›λψλ~ΌΩΝ΄ο~ωλnµλΎΉιξψΩήΈοn½ο®ΉινλΉο®ΉιΞοNλοΫNτιΞµιξ]Ρ­ΩέΡ­Ϋ}΄η~τλή›λΡ®yο~ΉΫNψλΞ½ο}΄ο~›λήιΝ΄οΎΌλΫNψλΞΉΫNωο~Ήοm΄οΎµιξψο}΄οΫMΩ®ΊλΉιΝ΄ιώωο΄λ^ΫN½λΉλ]Ω­΄λnΉλ®οnΉΫN·ιώιή½οψλήλ½΄οΫNµΫNφλµιΝ΄λnωλήλ΄{o4χ΄ο®µιΞ½λµο½ιξ»ΫNΊλµο~½λn½ιΞ½ούΩΝ΄λ~ιήτλ^φλήλ½΄λ^τοNφιώµλ~ΌλχΩΝ΄ιώφΫNχοφλ®µλ~½ιξ»ΫNωιξ›ιξοΎο}΄οΌλ^ψΫNιύ΄λ^ιώωιξψΫNλ­΄οnΉο~Ήλ^φλ~ΌΫNϋλήιΝ΄λ^ο~ϋλφΩν΄η~τλή›λχΫNµοnΉΫNΈλήχοNο~µλnλ΄λnύΫNΈλχλή»ινΫNxλΞφιώϋΫNψλΞΉιέ΄λ^ϋλ^ύΫNιξ·λ΄οΌλύΫΎϊλ΄οNµλήΈΫNψλΞΉλήφΫNΈλ¶οΡ­αΞλ^ΈΫNψλΞ½ο}΄οΎΌλΫNψλΞΉΫNωο~Ήοm΄ο~µοήχΫNψλΞ½ιξ»ο}΄ιΞ½ιΎΉΫM¶ιΞΉο΄ιήΉΫNψοnύΫNψλΞ½ο}¶ΩΝ΄Ϋn=ΫNϋλ^ο΄οΫNχλΉΫN½λ­΄ηΝ΄οΎοn›ο}¶ΩΝ΄ΫnχοN½ιΎΉΫNψλΞ½ο}΄ιώωο¶ΩΝ΄Ϋn¶λΊιώφλ΄γέ΄λ~ιήλήψΫNψιύ΄ηέ¶ΩΝ΄Ϋnυο½λ~›ΫNτοnοούοNΉΫNλ­΄ε­¶ΩΝ΄Ϋn½ο}΄οΌλήχΫNΉο®Ήιν΄οNο~χλή¶ιΞΉέύ¶ΩΝ΄ιώφΫM¶λ~ιήτλ^φλ΄γ]΄ο®χΫN6ΫmΡ­Ϋ}·ΫN{λΞΉιν΄αξη΄οΫNωο~ΉΫNψλΞ½ο}Ρ­ΫNxλΞΉΫNµιξχοΎΉοm΄λήχΫN›ιξοΎµλnλ΄λ®φιώΫNΈιώ·ο}΄ιώφΫNφλµλ½ιξ»ΫN·ιώΈλ΄{o4χ΄ι®ωο~ψΫNΈιύ΄οnΉο~Ήλ^φλ~ΌΩΝ΄λιν»ο΄λnωλήλΩέ΄ηΌλ΄οΎοn›ΫN½ο}΄οNφιώΈο·ο½ιώΫNτλ^ψλΝ΄{o4χ΄οχλ΄οΌλ΄λNτιΞµιξ΄ΫNχιΎ½ιΞΫN½ιξχοΉλ^ΈΡ­ΫNxλΞΉΫN½λΉλ]΄λήχΫNµιΞφλµλύΫNϊλ^λήΈλ^ψλΈΫG¶σOxΫNοοM΄ο~ψοnµλή»λΞψΫNψιύ΄λήοNλλοµο½ιώΡ­Ϋ}·ΫN=λ­΄οΌλ΄οχλφΫNΌλ^χΫNψλΞΉΫNΊοιΝ΄γΎwγ΄ο~ύο~ψλΫN½ιξχοµιΞλΈΡ­γήΊΫN΄λΎχλο~τλή›λ΄ΫNχλΞοΎχΫNωοM΄λ^χΫNµΫNχλή¶ιΞ½ιξ»ΫNχιΎ½ιΞΫMΌλήο~ψλ^ιΞΉλ΄ο®½λ]΄λNοNόΫN»λψΩήχλΞ½ολιξΉΩή·λ}΄ΩέλΞΉοnλχλM½ΩΝ΄οNφλΊλφΫMΩ®΄λΎχλο~τλή›λ΄Ω­ΫNϋλΞΉιν΄οΌλ΄οχλφΫNϋλ^οχΫNψλΞΉΫNΊοιΝ΄γΎwγ΄οΎοn›λ®ιώϋέ­΄οNΉοnχλήχοΉιξψΫN΄ΩξτιΞµιξλήλ½ο~τλή›λχΩώ΄ΫNχοµοΉΩΝ΄αή5αξ=γ®9η~xΫNψοnµλ~›λήλ½΄λ^·οnο~χΫNχλχο~½ιώο}ΫN;λήϊλΩώ{λΞΉινηΌλΫNϊλφλ½λ~ψΫNΊιώφιήµοΫNµιξΈΫN·ιώιή½ο΄οNµοψλφιξχΫNψλΞµο΄λήοΉλΎφλ^ψλ΄οΎ½οΌΫNψλΞΉΫNφλχο΄ιώΊΫN;η~8Ων΄ηΌλήχΫNχιΎ½ιΞΫN½ο}΄οΌλ΄ιΞ½λΎΌοϋλ½λΎΌο΄ο~ψλ^λµιΞιξΉΫNϊλφο~½ιώΫNΊιώφΫNωο~ΉοnχΫNϋλΞΫNΈιώΫΎψΫNΌλ^ϊλ΄ΫΞοm΄λιν»ο΄οΎµιξψΫέ΄οΌλ΄λ®ωιΞΫNχοήχοΉιέΡ­Ϋ}·ΫN7ιώφλ΄ιήΉοΌιώΈΡ­ηnΉλΎµοnΈιΞΉο~χΫNλ­΄ο~·λ^λΫNΉο®ΉοnύΫNχοN½ιΎΉΫNΊιώιΞοΎχΫNψλΞ½ο}΄ιΞιώτέ­Ρ®΄λN΄Ρ®Έλ·ιώοNο~ΉΫM΄{o:χm΄ΫNφλχλµοn·λΝ΄ΫG¶σ―vΫM΄λnωλήλ΄ΫG¶σ―vΫM΄ο®ΉοnΈλή·οΫM΄ΫG¶σ―uεώ_εώ_εώ_εώ_εώ_εώ_εώ_εώ_εώ_εώ_εώ_εώ_εώ_εώ_εώ_εώ_εώ_εώ_εώ_εώ_εώ_{o:χ}ΫM΄ΫM΄ΫM΄ΫM΄ΫM΄ΫM΄ΫM΄ΫM΄ΫM΄λήψλφλ^ψλ΄ιώΫNΊλήλ½ιξ»ο}λN΄λMΡ­·Ϋ}·ΫMυΩν΄γΉλ~ιήτιώχλΡ®6οnΉλ^›ΫNψλΞΉΫNωο~Ήοm»ο}΄λήΈλµΫN½ιξψιύ΄Ω­ίmί΄λήλΉοNΉιξΈλο΄λ®Ήλ^χλή¶λήλήψοέ΄ο^ωλχο½ιώο}Ω­ΫN9λ^·λΝ΄ο^ωλχο½ιώΫN½ο}΄ιώλ΄ο~τλή›λΫNtοnΉο~ΉιξψΫNψλΞΉιέ΄λ^χΫNµΫNψλ^¶ιΞΉΫNϋλήψλΝ΄γΎ½ο®ΉινηΎΌλΩώxλΞΉιν΄λ®φλ^λήλ½ΪΡ­νΝ΄Ϋ}΄νΝ΄η~τλή›λ΄νΝ΄η®µιΞ½λµοΉο}΄ΫΞ;λήϊλΩώ{λΞΉινηΌλΫέ΄νΝ΄ηn½ο~›ΫNάΡ®άΩέΩήάΩέΩέΩέΩήάΩέΩέΩέΩέΩέΩέΩέΩέΩέΩέΩέΩέΩέΩένΝΩέΩέΩήάΡ®άΫMτίMυΫNάΫNϋλ¶ο~λ~›λψΩήχοφλµιή½ιξ»ΫNάΫN;λήϊλΫNµΫN{η}΄λ~ιξλ·ο½ιώΩΝ΄οΎΌλΫNαΞΫNχοφλµιήχΫNψιώ›λο}ΫNψλΞΉιν΄λ~λήΉιξψΫNφλ·λ½ο®Ήο}΄λ~ΌοιΎχΫMάΫMυίMτιήχΫNάΫN<λή»λΝ΄νΝνΝ΄ίMτίnµΫNάΫNτλΊΩήτλ^φο~ΉΩήτλΊι®χΫNάΫN;λήϊλΫNµΫNοο½Ωήτλ^»λ΄ηN8γ­ΫNϋλΞΉιν΄οNµοnχλΈΫNϋλήψλΝ΄οNΈλ®ο}ΫNψλΞΉιν΄ο~ψοnωλ~ψοφλΈΫNψλόο΄λήχΫNΉοΞψοnµλ~ψλ^¶ιΞΉΫNάΫNλΈλήωιέ΄νΝνΝ΄ίMτίn¶ΫNάΫNτλΊΩήτλ^φο~ΉΩή·λ^λιώψΫNάΫN;λήϊλΫNµΫNοο½Ωήτλ^»λ΄ηN8γ­ΫNϋλΞΉιν΄οNµοnχλΈΫNϋλήψλΝ΄λ~µιήΉιΞοΫNψλΞΉιν΄ο~ψοnωλ~ψοφλΈΫNψλόο΄λήχΫNΉοΞψοnµλ~ψλ^¶ιΞΉΫNάΫNλΈλήωιέ΄νΝΡ­Ω®wοN½ιΎΉΫNψοήτλχέ­Ω­Ωέ΄Ω­ο~ψλ^λµοnΈΩ­ΫG¶σOxΫNιξΉΫNµοNτοnλ^·λΝ΄λ^ο~ϋλφλήλ½΄ιώλ΄ο^ωλχο½ιώΡ­ΫMΩ®·ιώοNµοn½ο~ινΩ­΄{o4χ΄ο~µιήΉΫNυοΉο~ψλήινΫNΈλήΊλ®ΉοnΉιξψΫNµοNτοnλ^·λΞΉο}΄ΫΞχλΞµοnΉλ΄ιξωιή¶λφΩΝ΄ιΞΉοψλφΫNχοΊλ®½οΝ΄λNµλMλN¶λMλN·λM½Ρ­Ω­γΎιώΈΫNχοN½ιΎΉΫNυοΉο~ψλήιξχέ­Ω­΄ο~τλ·λήΊλή·ΫNΊλµο~½λn½ιΞ½ούΫNϋλήψλΝ΄ιώ¶ο~Ήοnϊλ^¶ιΞΉΫNοψοNωοΡ­Ω®6λ^ΈΫNχοN½ιΎΉΫNυοΉο~ψλήιξχέ­Ω­΄οιύ΄λnφιώµλΫNιύ΄ιώ¶ο~Ήοnϊλ^¶ιΞΉΫNοψοNωοΫNοm΄ι®ωο~ψΫM¶οnΉλ^ΈΫNψλΞΉΫNΈιώ·ο}΄λ^¶ιώωο΄ηΝ¶ΩνΡ­Ω®οnΈλφΫN¶οέ΄οn½ο~›ΩνΩ­΄ηΌλ΄ο~τλή›λ΄ιήο~ψΫNλή›λοέ΄οΫN›λήιΝ΄οΌλ΄λήΈλµΫNφοο}΄λ®½οnχοΫNιύ΄οNλήο΄οNφιώψιώψοήτλήλ½΄οΌλ΄λµο~ύΫNτλ^φοχΫN½λ­΄οΌλ΄λΞµοnΈΫNτλ^φο΄λλχιν»ο΄οΎοn›ΩνΡ­Ω®wιΎ½οM΄λΉλ~ιήτιώχλήψλήινΩ­΄ιώιΞύΫN½λ­΄οΌλ΄οχλφΫNµιΞφλµλύΫN›ιξοΎχΫNΉοΞµλ~ψιΞύΫNϋλΞµο΄οΌλύΫNϋλ^ο΄οΫNχοN½ιΎΉΫNµιξΈΫNχλ^ύο}΄ο~Ων΄ηΌλΫNψλ^›λ΄οΌλ½οm΄λήΈλµΫNµο}΄λ]΄ο~½ιξ»ιΞΉΫNχοN½ιΎΉΩνΡ­·Ϋ}·ΫMφΩν΄γ^λή»ιν΄ΫΞΊιώφΫNοο½ΩήχοN½ιΎΉΫN½λΉλ^χΫέΡ®tοnΉο~ΉιξψΫNψλΞΉΫNχοN½ιΎΉΫNψλ^¶ιΞΉΩν΄γ^χι½ΪΫM¶γnωλήλ΄λ^ιΝ΄λήΫNψλΞ½ο}΄ιώφλΉοmΫNοm΄λ^Έι®ωο~ψέύ¶ΫNλψΫNψλΞΉΫNωο~Ήοm΄λφιώτΩΝ΄οnΉιώφλΉοmΫNοm΄οnΉΩήΊοnµιήΉΫN¶λΊιώφλ΄οήο΄οΎφλήψλ΄λ^οέ΄λ~λΉΩνΡ­·Ϋ}·ΫMχΩν΄ηnΉο~Ήλ^φλ~ΌΫMΌοNΉοm΄ο~τλή›λΫN¶λΊιώφλ΄λnωλήλ½ιξ»ΫέΡ®wοN½ιΎΉο}΄λ^φλ΄ιξο΄οnΉο~Ήλ^φλ~ΌΩήΊοnΉλ΄{o4χ΄οήο΄οnΉο~Ήλ^φλ~ΌΫNΉιξο»λΝ΄οΫNτλή·ι½΄οΌλ΄οn½λΎΌο΄λ^τοNφιώµλ~ΌΩΝ΄οΌλΫNύιώωΫN¶ο½ιΞΈΩν΄ηNΉοm΄ο~τλή›λΪΡ­ί]ΫMΩ®6οn½λΊΫN½οΩ­ΫMφΩέχΫNχλοΉιξ·λχέ­΄οΎΌλ^ψΫNψλΞ½ο}΄ο~τλή›λ΄λήχΩΝ΄οΎΌοέ΄λήψΫNλ^ψοΉοnχΩΝ΄ιΎΉοέ΄οn½ο~›ΩνίmΫMΩ®wοφλ®µλ~ΉΫN·ιώοNΉο½ιξ»ΫNµοNτοnλ^·λΞΉο}Ω­΄λήΊΫNψλΞΉοnΉΫΎχΫNφλµιΝ΄λ~Όιώ½λ~Ήέ­Ρ­΄ΫM΄νΝ΄γ^τοNφιώµλ~ΌΫNάΫNxιώιΝαΞ½λnφλ^φοέ΄νΝ΄ηNφιώχΫNάΫN7ιώο}΄νΝ΄η~ψλ^ψοχΫNάΡ­΄ΫM΄νΝΩέΩέΩέΩέΩήάΩέΩέΩέΩέΩέΩέΩήάΩέΩέΩένΝΩέΩέΩήάΩέΩέΩέΩένΝΫM΄ΫNάΫMΩνΫNάΫMΩνΫNάΫMΩνΫNάΫMΩνΫNάΫNλ^½ιξψλ^½ιξΉλ΄Ωύ΄λ^¶λ^λιξΉλ΄Ωύ΄λnΉοµΫNάΡ­ί}ΫMΩ®tλή·ι½΄ιώλΩ­ΫNwοµοΉΫNϋλΞύΩν΄γήΊΫMφΩ½΄λ^φλ΄λ~φλΈλή¶ιΞΉΩΝ΄λnωλήλ΄ο^ωλή·ι½΄ο®µοn½λ^οχΫNϋλήψλΞ½ιν΄οΌλ΄ο~τλή›λΡ­ψΩν΄Ω­η~›λήτΫNφλχλµοn·λΝΩ­΄λ®οm΄οNωοnΉΫNιώ»λή·ΫNϋλήψλΝ΄ιξΫNΉοΞψλφιξµιΝ΄λΉοNΉιξΈλλ~½λχΩνΡ®yο~ΉΫN<λφιήΉο}΄οιώο}΄λ®οm΄οΌλ΄οnΉο~Ήλ^φλ~ΌΫNχοΉοMΪΡ­Ωέ΄λNϋλ¶εώχλµοn·λΝΌΫnτοήψλΞιν΄οΎΉλnχιώ·ιΎΉο΄ο~ψοnΉλ^λήλ½΄ιΞ½λnφλ^φλήΉο}΄ίmτίmωΫm½λM΄{o4χ΄λ®½ιξΈΫN·λ^λ½λµοΉο}Ωέ΄λNϋλ¶εώΉοΞψοnµλ~ψΫΞωοnο}έε½¶λΞψοτο}ΪΩύοΎΉλnχιώ·ιΎΉοχΩξφλµλψλΞΉλλ~χΩξ½ιύΩνΩν¶εέ½λM΄{o4χ΄οnΉλ^ΈΫNψλΞΉΫNµλ~ψοµιΝ΄λλ~χΫMΌοnΉοωοnο}΄ιήµοn›λοΎΫέΩέ΄λNψλφιή½ιξµιΝΌΫnτλήτΫNχλΞο½΄οΎΉλnχιώ·ιΎΉοχΫNάΫN»οnΉοM΄η®Ήοnχλήιν¶Ϋή΄ΫG¶σOxΫN·λΞΉλ~›ΫNϋλΞµο»ο}΄λήο~ψλ^ιΞΉλ΄λήΫNψλΞΉΫNτοnι®Ήλ~ψΫΎχΫNϊλο­Ρ®:ιώφΫNλή¶οnµοn½λχΫNϋλήψλΞοψΫNΈιώ·ο}΄οNµλΎΉο}ΫN·ιΞιξΉΫNµιξΈΫNφλµλ΄οΌλ½οm΄λNvγ5γγιήΈλM΄Ωύ΄λNΉοΞµιήτιΞΉο}λM΄ο®½λ]΄λNφλµλ_λ®½ιΞΉλMΫN7ιώοΉοΞψί½΄αή7ηM΄ΫΞ½λ­΄οΌλ΄οχλφΫNΌλ^χΫN½ο΄λ~ιξΊλή»οφλΈΫέ΄λήχΫNµιΞχιύ΄λ]΄λΎιώΈΫNχιώωοn·λ΄{o4χ΄λNλ~τεύεώφλχιώο®ΉΩήλή¶οnµοnύΩή½λ΄ΫNψλΞΉιν΄λNλ~τεύεώυοΉοnύΩήΈιώ·ο~΄ΩνΡ­·Ϋ}·ΫMψΩν΄γnωλήλΡ®ιξΉΫNΈλήφλ·οοnύΫNτλφΫNχοN½ιΎΉΩν΄αΎΉλτΫN½ο΄ο~ψλ^λµιΞιξΉΩνΡ®΄λN΄Ρ®χοN½ιΎΉο}Ρ§¶χ\{oxσG¶χ4ΫMτίMυΩήϋλ¶ο~λ~›λψΩήχοφλµιή½ιξ»Ωύ{oxσm΄ΫM΄{oxυΗ¶χ4{oxσM΄ηn9γ^8αή9Ωξλ{oxσm΄ΫM΄{oxχ‡¶χ4{oxσM΄ιήµλήΩξτοέ{oxυΗ¶χ4{oxσM΄ίMτίnµΩήτλΊΩήτλ^φο~ΉΩήτλΊι®χΩύ{oxσm΄ΫM΄{oxυΗ¶χ4{oxσM΄ηn9γ^8αή9Ωξλ{oxσm΄ΫM΄{oxχ‡¶χ4{oxσM΄οNµοnχλι®χΡ§¶χx{oxσG¶χ4ΫMτίMφλmοNΈλ­οNµοnχλλ~µιήΉιΞοΡ­΄ΫM΄ΫG¶χ\{oxσG¶χ4ΫNvγ5γγιήΈΡ­΄ΫM΄ΫG¶χx{oxσG¶χ4ΫNτλ^φο~ΉΩξτοέλN΄λMΡ­Ω®6λήµο}΄οοΎµοnΈΫNχιώλψλΞ½ιξ»ΫNψλΞΉΫNωο~Ήοm΄λ~µιν΄λήοΉοnµλ~ψΫNϋλήψλΝΩ­ΫNwοN½ιΎΉο}΄λ®µλήΫNϋλΞΉιν΄οΌλ΄ιώιΞύΫNοψοNωο΄λήχΫNµΫNιώ»ΫNλήλ΄οΌλ^ψΫNχλ^ύο}΄Ϋn½ο΄οΎοn›ο}Ϋm΄ηΌλ΄οχλφΫNϋλ^οχΫNψιύ΄Ω®ΊλΉιΝΫNψλΞΉΫNχοN½ιΎΉΫNϋιώφιΎ½ιξ»Ων΄γΉλ®µοο΄λ~Όιώ½λ~Ήο}ΫN½ιν΄ιώφλΉοm΄ιώΊΫNτοnΉλ®ΉοnΉιξ·λΪΡ­ί]ΫN5ΫNφοιξµλnλ΄γ~γέ΄οΌλ^ψΫNψλ^›λχΫN½ιξτοψΫNµιξΈΫNτοn½ιξψο}΄ιώ¶ο~Ήοnϊλ^¶ιΞΉΫNοψοNωοίmΫN5ΫNλήλήλ^ΫN<ηαΝ΄οNµλΎΉΫNψλΞµο΄λΉιήιξχοφλ^ψλχΫNψλΞΉΫN¶λΌλ^ϊλήοmί}ΫN5ΫNχιήµιΞΫNϋλ¶ΫNχλφο®Ήοm΄οΎ½οΌΫNιξΉΫNΉιξΈοNλήοίΫN5ΫNωιξ½ο΄οΉο~ψΫNψλΞµο΄λόλφλ~½ο~Ήο}΄οΌλ΄ο^ωλχο½ιώΫNϋλήψλΝ΄οnΉλ~λΎλήΪλ^¶ιΞΉΫNµο~χλφο½ιώο}Ρ­Ω®8λτοΌΫNο®Ήοm΄ο~τλΉλΩ­ΫNλϊλφΫNΈλ·ιΞµοnΉΫM¶λήψΫNϋιώφιΎχΫm΄λ^ΊοΉοm΄ιώλ΄λΞµοNτοέοNµοΌΫNφοΩν΄ηΉο~ψΫNΉλ»λ΄λ~µο~Ήο}ΫN:ιώιΞο½΄ο~ωοnτοn½ο~½ιξ»ΫNΊλήλ½ιξ»ο}ΫNxλΞΉΫNϊλφλ½λ~ψΫN½ο}΄ιώιΞύΫNψοnωο~ψοΎοnψλΞύΫNϋλΞΉιν΄οΌλ΄λήο®Ήο~ψλή»λ^ψλήιν΄οΎµο}΄λΞιξΉο~ψΩνΡ­Ω®5ο®λήΈΩ­ΫNωιξλχο}΄οΌλ΄ο~τλή›λ΄ο~τλ·λήΊλή·λ^ιΞύΫNφλυο½οnΉο}΄λήψέ­΄λ~ιήτιΞΉοΝ΄οNµλ~›λ^»λ΄ιήµιξµλΎΉιήΉιξψΩΝ΄λnωλήλ΄οιώο}λnωιξΈιΞΉοnχΩΝ΄γλ~›λφΩΝ΄λο­΄λ®½ιΞΉο}ΫN·ιώλ®½λ½΄ο~ύο~ψλο}ΫN<λ^φλ·ιώΈλ΄λϊλφοήψλΞ½ιξ»ΫG¶σOxΫN½ο»ο}΄λ]΄ο~τλή›λΡ­Ω­γnωλήλ½ιξ»ΫNιξΉΫNχοN½ιΎΉΩ­ΫG¶σOxΫNµΫNψοήτλή·λ^ΫNψιώιΝ΄ο~Ήο^ωλλ~Ήέ­Ρ®΄λN΄Ρ®ψλφιή½ιξµιΝΌΫnιΎΈλήφΫMοM΄ο~τλή›λχΩύτίMυΩήϋλ¶ο~λ~›λψΩήχοφλµιή½ιξ»Ϋm½Ρ®ϋοn½οΉεώΊλήλΌΫnχοN½ιΎΉο}ίMτί]οΎΉλnχιώ·ιΎΉοο~ψοnΉλ^λήλ½ηn9γ^8αή9Ωξλ¶ΩΝ΄Ϋm·ΫMτίMυέ­΄οΎΉλnχιώ·ιΎΉοο~ψοnΉλ^λήλΎ\ιξ\ινΩνΫm½Ρ®ϋοn½οΉεώΊλήλΌΫnχοN½ιΎΉο}ίMτί]οΎΉλnχιώ·ιΎΉοο~ψοnΉλ^λήλ½ιήµλήΩξτοέ¶ΩΝ΄ΫmΩνΫm½Ρ®ψλφιή½ιξµιΝΌΫn·λ΄ο~τλή›λχΩύτίMυΩήϋλ¶ο~λ~›λψΩήχοφλµιή½ιξ»ΫMΊΫ­΄οNύοΌιώί}΄ιήµλήΩξτοέ¶ΫέΫ}΄αώ¶ο~Ήοnϊλ΄ιώωοτοψΩΝ΄λήψλφλ^ψλΡ®΄λN΄Ρ­Ω­ηNµοnµιΞλΫN·ιώοNµοn½ο~ιν΄ο~τλή›λχΫMΌίMτίnµΫMΫMτίMφλm½ΫG¶σOxΫNΈλλ»λ^ψλΩ­ΫN{λΞΉιν΄οϋιύ΄λ^τοNφιώµλ~ΌλχΫN·λ^ΫNφοΫN½ιν΄οNµοnµιΞλΫNµιξΈΫN¶ιώψλΝ΄ιξΉλΈΫNφλµιΝ΄λλΎ½ιξΉλφλήλ½΄ΫΞιώψΫMυίMιΞ½ιξΉΫNτοnοούοNΉο}½ΩΝ΄λ®µιν΄ιώωο΄οΎ½οΌΫN΄λΉιΞΉλΎµοΉεώψλ^χιΎ΄έ­Ρ®΄λN΄Ρ®Έλλ»λ^ψλ_οµο~›ΫΞψλ^χιΎχέή[Ρ­΄ΫM΄ΫNΫΫn»ιώµιΝ¶έ­΄Ϋn6ο½ιΞΈΫMτίMφλ]οNΈλ­οNµοnχλοNΈλ®ο}ΪΫMΩνΫmΫM¶οιώο~ΉοχΫmΪΫN[Ϋnψλφιή½ιξµιΝ¶ΩΝ΄ΫnΊλήλ¶ΩΝ΄Ϋnϋλ¶Ϋn]νέΡ­΄ΫM΄ΫNΫΫn»ιώµιΝ¶έ­΄Ϋn6ο½ιΞΈΫMτίMφλmοNΈλ­οNµοnχλλ~µιήΉιΞοΪΫMΩνΫmΫM¶οιώο~ΉοχΫmΪΫN[Ϋnψλφιή½ιξµιΝ¶ΩΝ΄ΫnΊλήλ¶ΩΝ΄Ϋnϋλ¶Ϋn]νέΡ®]ΫέλN΄λMΡ®9λ^·λΝ΄ο~ωλnµλΎΉιξψΫNφλψοφιξχΫN½οχΫNοΎΫNϊλφλ½λ~ψέ½΄οήο΄οΎφλήψλ΄οΌλ΄λΞΉλ^ΈΩήψιύλΞΉλ^ΈΩνΡ­·Ϋ}·ΫMωΩν΄η®ΉοnΈλή·οΡ®9λ^·λΝ΄ο~τλή›λ»ο}΄λNvγ5γγιήΈλM΄λ~ιώχλχΫNϋλήψλΝΪΡ­λN΄λNλ^φιΎΈιώϋινΫ}·ΫNzλφλ½λ~ψέ­΄η®5αΞ=γ5η9γ΄νΝ΄ηN5ηnxγή5αΝ΄νΝ΄γήη®5αΞ=γ5η9γΡ­·Ϋ}·ΫN{λΞµο΄οΎοn›λΈΡ­ΫMΩνΡ­Ϋ}·Ϋ}΄ηΎΌλ^ψΫNΈλήΈιν»οΩέ΄ΩνΩνΡ­·Ϋ}·ΫNwοφοNφλήχλχΡ­ΫMΩνΡ­Ϋ}·Ϋ}΄ηnΉλ~ιήλλµο½ιώΫNΊιώφΫNψλΞΉΫNφλµιΝ΄λnωλήλΩέ΄ΩνΩνλN΄λMΡ­Ω®zγ^γή8γ^xγ8Ω­ΫMέΫNψλΞΉΫN·ιώφλ΄ο^ωλχο½ιώΫNϋλ^χΫNµιξχοΎΉοnΉλ΄οήΉο}ΫNϋλήψλΝ΄λϊλήΈλλ~ΉΩνΩ­ηN5ηnxγή5αΝΩ­΄έέ΄λήψΫNϋιώφιΎχΫNωιξΈλφΫN·ιώο~ψοnµλήοχΫN|ΩΝ΄ηέΫNZΫG¶σOxΫNΈιώ·ολο΄οΌλΩνΩ­γήη®5αΞ=γ5η9γΩ­΄έέ΄λλχιν»ο΄οΎοn›ΩΝ΄λ®οm΄οΌλήχΫNφλµο~ινΫNxλΞ½ο}΄λήχΫNµΫNχο·λ~Ήο~χλ®ωιΝ΄ο~τλή›λΡ­Ϋ}·ΫN7ιώοNµοn½ο~ιν΄ο~τλή›λχΡ­ηΎΌλΫNψοΎΫNµοNτοnλ^·λΞΉο}΄λ^ο~ϋλφΫNψλΞΉΫNχλ^λ΄ο^ωλχο½ιώΫMΌίMτίnµΫMΫMτίMφλm½ΩΝ΄λnωλήλ΄οΌλΫMΩ®¶λ^·ι½΄οΫN¶λ^·ι½Ω­ΫNψλΞΉιν΄λΫNµΫNΌλµλοΩήΌλµλ΄λ~ιήτλ^φλήχιώΫNµο΄οΌλ΄λλΪΡ­λN΄λNλ^φιΎΈιώϋινΫ}·ΫN<λµλοΩήΌλµλΪΫNτλΊι®χΫNϊο}΄λ~µιήΉιΞοΡ®άΫN8λήλο~½ιώΫNάΫNτλΊι®χΫMΌίMτίnµΫέ΄νΝ΄λ~µιήΉιΞο΄ΫΝτίMφλm½ΫNάΡ®άΩέΩέΩέΩέΩέΩήάΩέΩέΩέΩέΩέΩέΩένΝΩέΩέΩέΩέΩέΩέΩέΩήάΡ®άΫN9οΞψοnµλ~ψλήιν΄ο^ωλ^λήψοέ΄νΝ΄ίέί]τΫNχοφο·οωοnΉλ΄νΝ΄ί½ί]τΫNψλ^¶ιΞΉΩήιξοέ΄νΝνΝ΄η~ΉοωοM΄λ~ιήτιΞΉοΞ½ούΫNάΫNοNΫN½ιξχοµιΞΩΝ΄ί]΄ιΞ½ιξΉΫNάΫNτλήτΫM›ΫN»λΞο~ψο~·οn½οNψΫNάΡ®άΫNtλφλ­΄ιώΫMυίMτΩήτλ^»λ΄ηN8γ­΄νΝ΄ί~χΫNάΫMυίΞχΫNάΡ®άΫN<λ^λλχΫNφιώψλ^ψλΈΫNψλόο΄νΝ΄ιξΫNάΫNύλχΫNάΡ­Ω­ηΎ½ιξλφέ­Ω­΄οNΈλ®ο}΄λ®οm΄ιώωοm΄οχλ΄λ~µο~ΉΩν΄γ~µιήΉιΞο΄λήΊΫNϋλ΄ιξΉλΈΫNψλ^¶ιΞΉΩήΊλήφο~ψΫNΉοΞψοnµλ~ψλήιν΄ιΞµοΉοmΡ®΄λN΄Ρ­Ϋ}·ΫN:οnιξψλήΉοm΄ιήλΉΫMΌοN½λ~›λήλ½΄οΎΌλ^ψΫNψιύ΄ο~τλή›λ΄ιξΉοΞψΫέΡ®=λ­΄ο~τλή›λχΫNµιΞφλµλύΫNΉοΞ½ο~ψΫNµιξΈΫNψλΞΉΫNωο~Ήοm΄ο~µοήχΫM¶οΎΌλ^ψΫNχλΞολ΄γέ΄ο~τλή›λ΄ιξΉοΞψέύ¶ΩΝ΄οΎµιΞ›ΫNψλΞΉΫNΉοΞ½ο~ψλήλ½΄λ½οnΉλ~ψιώφλήΉο}΄λ^λ΄ιΞιώ›ΫNΊιώφέ­Ρ­ΫMΩ®=ιξψλ»οnµο½ιώΫNφλήχιΎχΩ­ΫG¶σOxΫNψοΎΫNϊλ^λήΈλ^ψλΈΫNχοN½ιΎΉο}΄οΌλ^ψΫNψιώωλ~ΌΫNψλΞΉΫNχλ^λ΄οnΉο~οφλ~ΉΫN¶οψΫNϋλφλ΄οΉο~ψλΈΫN½ιξΈλτλλΉιξψιΞύΡ­ΫMΩ®8λ^ψλ]΄λΞµιξΈιώΊλ®χΩ­ΫG¶σOxΫNχοN½ιΎΉΫN5ΫΎχΫNοψοNωο΄οΎµο}΄λ^χο~ωιήΉλ΄λ~ιήτλ^ψλή¶ιΞΉΫNϋλήψλΝ΄ο~τλή›λ΄γm»ο}΄λήοNωοΫΫNλϊλφΫNτοnο®ΉινΩέ΄Ω­γΎµοNχΫN½ιν΄οΌλ΄ο®½ο~½ιώΩ­ΫG¶σOxΫN·λ^τλ^¶λήλήψλήΉο}΄λ^χο~ωιήΉλ΄λnωο΄οοNφιώϊλΡ­ΫMΩ®5ιΞψλφιξµο½ο®ΉΫNµοNτοnλ^·λΞΉο}Ω­΄{o4χ΄λ½λ®Ίλφλο΄λ^λΎλχΫNΊιώφΫNtγ^vη=γ^ΫNοm΄γήη®5αΞ=γ5η9γ΄ο~τλή›λχΡ­ηNφιώτιώχλ΄ίmί΄λ~µιξΈλήΈλ^ψλχΫNµο}΄γΎ½ο®ΉινηΎΌλΩώxλΞΉινΫNλψΫNψλΞΉΫNωο~Ήοm΄οN½λ~›ΩνΡ­·Ϋ}΄αώωοτοψΡ­Ωέ΄γ~φλµοΉΫN΄ο~τλή›λχΩώ΄ΫMΌιώφΫN΄ΩξτιΞµιξλήλ½ο~τλή›λχΩώ΄ΫN½λ­΄οΌλ΄οχλφΫN½ο}΄οχλήλ½΄γΎwγ΄λ~ιξϊλο½ιώο}½ΫN½ιν΄οΌλ΄οnΉοNΫNφιώοΩέ΄αώλ΄λ½οm΄οNΉοm΄ο~τλή›λΪΫN΄αξανλΉο~·οn½οNψλήϊλιξµιήΉΩώ΄Ρ­ΫN΄ηn9γ^8αή9Ωξλ΄ΫNτλφΫNχοN½ιΎΉΫN·λ^τοωοnΉο}΄ο^ωλχο½ιώΩΝ΄λ^τοNφιώµλ~ΌΩΝ΄οnΉο~ωιΞψο}ΫNϊλφλ½λ~ψΡ­ΫNλΉοM΄οΌλ΄λ~λΉΫNψλΞφιώϋλ^ϋλ^ύΫG¶σOxΫNµΫNχοN½ιΎΉΫNψλΞµο΄οµιΎΉο}΄ίm΄λµοήχΫNψιύ΄Ϋn·ιΞΉλ^ΫNωοM΄λ®οm΄οNφιώΈο·ο½ιώΫm΄οΎµο}΄λ]΄λnµλ΄ο~τλή›λΡ­·Ϋ}΄γ^ψοφλή¶οψλήινΡ®5λµοNψλΈΫNΊοnιέ΄οΌλ΄γΎwγ΄ΫΞ;λψΫNwλΞ½ο΄γιξΉΫέ΄οNφιώλ·ο»ο}΄λMλΎχλο~τλή›λ΄ΫNϋιώφιΎΊιΞο½΄{o4χ΄αή=η΄sf½ΫMφίMφί΄αΞΉοΝ΄γ~Όοn½ο~ψιώτλΞΉοnχιώΫMΌεΎ»ο~ΈΩή¶ο½ιΞΈΩώ»λψΩήχλΞ½ολιξΉεέΌλΞψοτο}ΪΩύλΎ½οΌο¶Ωξ·ιώΩώ»ο~ΈΩή¶ο½ιΞΈΩώ»λψΩήχλΞ½ολιξΉΫέ½Ων΄ηΌλ΄λ®ωιΞΫN;η~8ΫNχοήχοΉιέ΄ιώΊλ®ΉοnχΫNτλφο~½ο~ψλο΄ο~τλή›λ΄ο~ψλ^ψλΫNγ^γή:γwη΄οφλ^·ιΎ½ιξ»ΩΝ΄λ^λ΄λήοΉλΎφλ^ψλήιν΄οΎ½οΌΫNµΫN¶οnλ^ΈλφΫNχοNΉλ}λφλήϊλΫNΈλϊλιώτιήΉιξψΫNτλήτλλήλΫΫN½ιξχοµιΞΫNϋλήψλΝ΄λNοNόΫN»λψΩήχλΞ½ολιξΉΩή·λ}΄ΩέλΞΉοnλχΫMΩή»ιΞλnµιΞ΄Ων
+---
+name: spike
+description: "Throwaway experiments to validate an idea before build."
+version: 1.0.0
+author: Community
+license: MIT
+platforms: [linux, macos, windows]
+metadata:
+  hermes:
+    tags: [spike, prototype, experiment, feasibility, throwaway, exploration, research, planning, mvp, proof-of-concept]
+    related_skills: [sketch, subagent-driven-development, plan]
+---
+
+# Spike
+
+Use this skill when the user wants to **feel out an idea** before committing to a real build β€” validating feasibility, comparing approaches, or surfacing unknowns that no amount of research will answer. Spikes are disposable by design. Throw them away once they've paid their debt.
+
+Load this when the user says things like "let me try this", "I want to see if X works", "spike this out", "before I commit to Y", "quick prototype of Z", "is this even possible?", or "compare A vs B".
+
+## When NOT to use this
+
+- The answer is knowable from docs or reading code β€” just do research, don't build
+- The work is production path β€” use the `plan` skill instead
+- The idea is already validated β€” jump straight to implementation
+
+## If the user has the full GSD system installed
+
+If `gsd-spike` shows up as a sibling skill (installed via `npx get-shit-done-cc --hermes`), prefer **`gsd-spike`** when the user wants the full GSD workflow: persistent `.planning/spikes/` state, MANIFEST tracking across sessions, Given/When/Then verdict format, and commit patterns that integrate with the rest of GSD. This skill is the lightweight standalone version for users who don't have (or don't want) the full system.
+
+## Core method
+
+Regardless of scale, every spike follows this loop:
+
+```
+decompose  β†’  research  β†’  build  β†’  verdict
+   β†‘__________________________________________β†“
+                  iterate on findings
+```
+
+### 1. Decompose
+
+Break the user's idea into **2-5 independent feasibility questions**. Each question is one spike. Present them as a table with Given/When/Then framing:
+
+| # | Spike | Validates (Given/When/Then) | Risk |
+|---|-------|----------------------------|------|
+| 001 | websocket-streaming | Given a WS connection, when LLM streams tokens, then client receives chunks < 100ms | High |
+| 002a | pdf-parse-pdfjs | Given a multi-page PDF, when parsed with pdfjs, then structured text is extractable | Medium |
+| 002b | pdf-parse-camelot | Given a multi-page PDF, when parsed with camelot, then structured text is extractable | Medium |
+
+**Spike types:**
+- **standard** β€” one approach answering one question
+- **comparison** β€” same question, different approaches (shared number, letter suffix `a`/`b`/`c`)
+
+**Good spike questions:** specific feasibility with observable output.
+**Bad spike questions:** too broad, no observable output, or just "read the docs about X".
+
+**Order by risk.** The spike most likely to kill the idea runs first. No point prototyping the easy parts if the hard part doesn't work.
+
+**Skip decomposition** only if the user already knows exactly what they want to spike and says so. Then take their idea as a single spike.
+
+### 2. Align (for multi-spike ideas)
+
+Present the spike table. Ask: "Build all in this order, or adjust?" Let the user drop, reorder, or re-frame before you write any code.
+
+### 3. Research (per spike, before building)
+
+Spikes are not research-free β€” you research enough to pick the right approach, then you build. Per spike:
+
+1. **Brief it.** 2-3 sentences: what this spike is, why it matters, key risk.
+2. **Surface competing approaches** if there's real choice:
+
+   | Approach | Tool/Library | Pros | Cons | Status |
+   |----------|-------------|------|------|--------|
+   | ... | ... | ... | ... | maintained / abandoned / beta |
+
+3. **Pick one.** State why. If 2+ are credible, build quick variants within the spike.
+4. **Skip research** for pure logic with no external dependencies.
+
+Use Hermes tools for the research step:
+
+- `web_search("python websocket streaming libraries 2025")` β€” find candidates
+- `web_extract(urls=["https://websockets.readthedocs.io/..."])` β€” read the actual docs (returns markdown)
+- `terminal("pip show websockets | grep Version")` β€” check what's installed in the project's venv
+
+For libraries without docs pages, clone and read their `README.md` / `examples/` via `read_file`. Context7 MCP (if the user has it configured) is also a good source β€” `mcp_*_resolve-library-id` then `mcp_*_query-docs`.
+
+### 4. Build
+
+One directory per spike. Keep it standalone.
+
+```
+spikes/
+β”β”€β”€ 001-websocket-streaming/
+β”‚   β”β”€β”€ README.md
+β”‚   β””β”€β”€ main.py
+β”β”€β”€ 002a-pdf-parse-pdfjs/
+β”‚   β”β”€β”€ README.md
+β”‚   β””β”€β”€ parse.js
+β””β”€β”€ 002b-pdf-parse-camelot/
+    β”β”€β”€ README.md
+    β””β”€β”€ parse.py
+```
+
+**Bias toward something the user can interact with.** Spikes fail when the only output is a log line that says "it works." The user wants to *feel* the spike working. Default choices, in order of preference:
+
+1. A runnable CLI that takes input and prints observable output
+2. A minimal HTML page that demonstrates the behavior
+3. A small web server with one endpoint
+4. A unit test that exercises the question with recognizable assertions
+
+**Depth over speed.** Never declare "it works" after one happy-path run. Test edge cases. Follow surprising findings. The verdict is only trustworthy when the investigation was honest.
+
+**Avoid** unless the spike specifically requires it: complex package management, build tools/bundlers, Docker, env files, config systems. Hardcode everything β€” it's a spike.
+
+**Building one spike** β€” a typical tool sequence:
+
+```
+terminal("mkdir -p spikes/001-websocket-streaming")
+write_file("spikes/001-websocket-streaming/README.md", "# 001: websocket-streaming\n\n...")
+write_file("spikes/001-websocket-streaming/main.py", "...")
+terminal("cd spikes/001-websocket-streaming && python3 main.py")
+# Observe output, iterate.
+```
+
+**Parallel comparison spikes (002a / 002b) β€” delegate.** When two approaches can run in parallel and both need real engineering (not 10-line prototypes), fan out with `delegate_task`:
+
+```
+delegate_task(tasks=[
+    {"goal": "Build 002a-pdf-parse-pdfjs: ...", "toolsets": ["terminal", "file", "web"]},
+    {"goal": "Build 002b-pdf-parse-camelot: ...", "toolsets": ["terminal", "file", "web"]},
+])
+```
+
+Each subagent returns its own verdict; you write the head-to-head.
+
+### 5. Verdict
+
+Each spike's `README.md` closes with:
+
+```markdown
+## Verdict: VALIDATED | PARTIAL | INVALIDATED
+
+### What worked
+- ...
+
+### What didn't
+- ...
+
+### Surprises
+- ...
+
+### Recommendation for the real build
+- ...
+```
+
+**VALIDATED** = the core question was answered yes, with evidence.
+**PARTIAL** = it works under constraints X, Y, Z β€” document them.
+**INVALIDATED** = doesn't work, for this reason. This is a successful spike.
+
+## Comparison spikes
+
+When two approaches answer the same question (002a / 002b), build them **back to back**, then do a head-to-head comparison at the end:
+
+```markdown
+## Head-to-head: pdfjs vs camelot
+
+| Dimension | pdfjs (002a) | camelot (002b) |
+|-----------|--------------|----------------|
+| Extraction quality | 9/10 structured | 7/10 table-only |
+| Setup complexity | npm install, 1 line | pip + ghostscript |
+| Perf on 100-page PDF | 3s | 18s |
+| Handles rotated text | no | yes |
+
+**Winner:** pdfjs for our use case. Camelot if we need table-first extraction later.
+```
+
+## Frontier mode (picking what to spike next)
+
+If spikes already exist and the user says "what should I spike next?", walk the existing directories and look for:
+
+- **Integration risks** β€” two validated spikes that touch the same resource but were tested independently
+- **Data handoffs** β€” spike A's output was assumed compatible with spike B's input; never proven
+- **Gaps in the vision** β€” capabilities assumed but unproven
+- **Alternative approaches** β€” different angles for PARTIAL or INVALIDATED spikes
+
+Propose 2-4 candidates as Given/When/Then. Let the user pick.
+
+## Output
+
+- Create `spikes/` (or `.planning/spikes/` if the user is using GSD conventions) in the repo root
+- One dir per spike: `NNN-descriptive-name/`
+- `README.md` per spike captures question, approach, results, verdict
+- Keep the code throwaway β€” a spike that takes 2 days to "clean up for production" was a bad spike
+
+## Attribution
+
+Adapted from the GSD (Get Shit Done) project's `/gsd-spike` workflow β€” MIT Β© 2025 Lex Christopherson ([gsd-build/get-shit-done](https://github.com/gsd-build/get-shit-done)). The full GSD system offers persistent spike state, MANIFEST tracking, and integration with a broader spec-driven development pipeline; install with `npx get-shit-done-cc --hermes --global`.
